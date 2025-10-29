@@ -11,3 +11,6 @@ Discover how gut health influences your skin’s glow. Learn about the best iHer
 At FortiGen Health, we combine nutraceutical science with modern wellness innovation to help you live stronger, healthier, and more radiant — naturally.  
 
 🔗 [Visit FortiGen Health](https://fortigenhealth.com) | [Follow on Medium](https://medium.com/@naeemtaunsvi)
+
+
+FortiGen Health — Gut & Skin Connection Research Archive
